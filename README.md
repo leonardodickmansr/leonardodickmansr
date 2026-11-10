@@ -1,4 +1,4 @@
-# 👨🏻‍💻 Leonardo Dickman S. Rocha, 28 anos, sou natual do Ceará.
+# 👨🏻‍💻 Leonardo Dickman S. Rocha, 28 anos, sou natural do Ceará.
 
 **`Business Intelligence`**
 
